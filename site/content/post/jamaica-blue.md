@@ -2,27 +2,52 @@
 title: 'Just in: small batch of Jamaican Blue Mountain in store next week'
 date: 2017-01-04T15:04:10.000Z
 description: >-
-  We’re proud to announce that we’ll be offering a small batch of Jamaica Blue
-  Mountain coffee beans in our store next week.
+  *SCAM* *SPAM* *HAM*
 ---
 
-We expect the shipment of a limited quantity of green beans next Monday. We’ll be offering the roasted beans from Tuesday, but quantities are limited, so be quick.
+Lorem ipsum dolor sit amet, consectetur adipiscing elit. Nulla ultrices
+bibendum aliquet. Pellentesque tristique vel metus ut aliquet. Integer
+condimentum porttitor lectus, et pharetra risus imperdiet in. Lorem ipsum dolor
+sit amet, consectetur adipiscing elit. Quisque nec congue urna. Pellentesque
+enim enim, imperdiet quis tristique quis, vestibulum ut lorem. Phasellus
+euismod diam sit amet finibus elementum. In nisi urna, aliquam sit amet urna
+ut, fringilla rutrum libero. Vivamus convallis sem sit amet justo dictum, in
+malesuada diam pretium. Integer auctor bibendum orci, a commodo felis tincidunt
+at. Nulla aliquam fermentum turpis, non finibus erat. Vestibulum ut elit dui.
+Curabitur ultrices turpis sit amet ipsum malesuada, eget porta mauris
+vulputate. Praesent non sem vehicula, venenatis libero vitae, vestibulum ipsum.
+Suspendisse potenti.
 
-Blue Mountain Peak is the highest mountain in Jamaica and one of the highest peaks in the Caribbean at 7,402 ft. It is the home of Blue Mountain coffee and their famous tours. It is located on the border of the Portland and Saint Thomas parishes of Jamaica.
+Integer condimentum, lorem sollicitudin tempor ultricies, sapien ligula
+accumsan lectus, ac mollis nunc mi gravida nulla. Class aptent taciti sociosqu
+ad litora torquent per conubia nostra, per inceptos himenaeos. Ut ac magna in
+quam convallis tincidunt. In purus libero, vulputate ac consectetur et,
+elementum rutrum erat. Quisque dapibus consequat ipsum imperdiet rhoncus.
+Vivamus lorem magna, sodales nec erat ac, euismod ultrices leo. Nulla facilisi.
+Quisque pretium neque eu risus congue, eget pellentesque leo tempor.
 
-## A little history
+Cras nec nulla maximus, consequat ipsum at, luctus augue. Aliquam erat
+volutpat. In hac habitasse platea dictumst. Sed augue ex, sollicitudin a nibh
+a, mollis sollicitudin sapien. In hac habitasse platea dictumst. Maecenas
+tristique viverra urna, quis iaculis nisi venenatis ac. Duis vitae leo nec elit
+egestas tempor. Praesent massa mi, elementum et nisl vitae, imperdiet mattis
+ipsum. Vestibulum id tellus eu enim vulputate pulvinar. Vivamus varius quam non
+arcu rutrum, sit amet tincidunt libero egestas. Quisque vitae neque ac velit
+feugiat auctor. Sed vel libero nec ex facilisis tincidunt nec vitae metus. Cras
+eget suscipit libero, imperdiet tempus odio. Donec non leo ut odio congue
+consequat sed quis augue. Vestibulum vitae augue venenatis libero imperdiet
+tempor eu ac tellus. Curabitur pellentesque maximus lectus, eget faucibus elit
+laoreet vitae.
 
-The Blue Mountains are considered by many to be a hiker's and camper's paradise. The traditional Blue Mountain trek is a 7-mile hike to the peak and consists of a 3,000-foot increase in elevation. Jamaicans prefer to reach the peak at sunrise, thus the 3–4 hour hike is usually undertaken in darkness. Since the sky is usually very clear in the mornings, Cuba can be seen in the distance.
-
->Some of the plants found on the Blue Mountain cannot be found anywhere else in the world and they are often of a dwarfed sort.
-
-This is mainly due to the cold climate which inhibits growth. The small coffee farming communities of Claverty Cottage and Hagley Gap are located near the peak.
-
-## What you need to know before trying
-
-Jamaican Blue Mountain Coffee or Jamaica Blue Mountain Coffee is a classification of coffee grown in the Blue Mountains of Jamaica. The best lots of Blue Mountain coffee are noted for their mild flavor and lack of bitterness. Over the past few decades, this coffee has developed a reputation that has made it one of the most expensive and sought-after coffees in the world. Over 80% of all Jamaican Blue Mountain Coffee is exported to Japan. In addition to its use for brewed coffee, the beans are the flavor base of Tia Maria coffee liqueur.
-
-Jamaican Blue Mountain Coffee is a globally protected certification mark, meaning only coffee certified by the Coffee Industry Board of Jamaica can be labeled as such. It comes from a recognized growing region in the Blue Mountain region of Jamaica, and its cultivation is monitored by the Coffee Industry Board of Jamaica.
-
-The Blue Mountains are generally located between Kingston to the south and Port Antonio to the north. Rising 7,402 ft, they are some of the highest mountains in the Caribbean. The climate of the region is cool and misty with high rainfall. The soil is rich, with excellent drainage. This combination of climate and soil is considered ideal for coffee.
-
+Vivamus dignissim justo a velit tincidunt, vitae aliquam urna interdum. Ut
+sagittis placerat justo, at pretium velit bibendum eu. In tempor sapien vitae
+lacus convallis, maximus pharetra ex interdum. Cras nulla quam, imperdiet
+maximus justo nec, sagittis aliquet tortor. Integer imperdiet neque in
+elementum rutrum. Phasellus a sapien vitae mi malesuada semper et vel ligula.
+Suspendisse in elementum magna, eget vestibulum mi. Cras pulvinar efficitur
+ante, a pretium magna porta interdum. Proin sodales condimentum magna, et
+lacinia ex consequat nec. Vivamus sodales orci ut mi sodales, eu faucibus
+libero tincidunt. Integer ullamcorper bibendum pulvinar. Proin dapibus
+vestibulum tortor. Morbi congue gravida nulla, vitae luctus tortor malesuada
+ut. Donec aliquam bibendum quam, sed cursus nisl consequat sed. Fusce a mi sed
+mi ullamcorper convallis.
